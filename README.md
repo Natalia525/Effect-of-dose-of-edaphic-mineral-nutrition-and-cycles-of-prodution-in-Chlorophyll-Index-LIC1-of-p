@@ -1,0 +1,1 @@
+# Effect-of-dose-of-edaphic-mineral-nutrition-and-cycles-of-prodution-in-Chlorophyll-Index-LIC1-of-p
